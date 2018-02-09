@@ -1,4 +1,4 @@
 # sun
 LIVE,LOVE,LEAVE
 
-ORCHIDOR，the wayt ot find yourself!
+ORCHIDOR，the way to find yourself!
